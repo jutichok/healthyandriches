@@ -6,4 +6,4 @@ This application is using in exersice member group for both healthy and also ric
 
 ### Support or Contact
 
-Having trouble with Application? feel free to contact my support +668 9 128 7880 and we’ll help you sort it out.
+Having trouble with Application? feel free to contact my support +6694-978-2542 or boonyarit585@gmail.com and we’ll help you sort it out.
